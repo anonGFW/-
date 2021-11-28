@@ -1,1 +1,2 @@
 # 写着玩的
+DONT BE SERIOUS
